@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @robber-manho
+- 👀 I’m interested in Gaming, Programming and Video Editing.
+- 🌱 I’m currently learning Video Editing.
+- 💞️ I’m looking to collaborate on Nothing. Yes, Literally Nothing.
+- 📫 How to reach me: Email me at forexampler.fadusa@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have a YouTube Channel: TOXCRAFT! Please Subscribe :)
