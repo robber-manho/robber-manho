@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on Nothing. Yes, Literally Nothing.
 - 📫 How to reach me: Email me at forexampler.fadusa@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I have a YouTube Channel: TOXCRAFT! Please Subscribe :)
+- ⚡ Fun fact: I have a YouTube Channel: TOXCRAFT! Please Subscribe here: www.youtube.com/@toxcraft_fadusa
